@@ -1,0 +1,1 @@
+# Hattrick-Organizer-Full-Version-Unlocked
